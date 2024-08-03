@@ -5,6 +5,8 @@
 
 # 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
 https://www.itemsatis.com/discord/temel-log-sistemi-1741586.html
+
+https://www.itempazar.com/discord-uye-nitro-sunucu/temel-log-sistemi-109948
 # 
 #
 
